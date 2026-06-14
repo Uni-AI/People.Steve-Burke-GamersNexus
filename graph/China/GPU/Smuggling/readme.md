@@ -1,0 +1,3 @@
+- [The Billion Dollar Decoy GPU Smuggling Scheme | Supermicro Staff Indicted](https://youtu.be/geHy5za6hDA)
+- [Detained by a Government & Probably Blacklisted by NVIDIA for Our Next Investigation](https://youtu.be/ltgyS8oJC8g)
+- []
