@@ -2,6 +2,7 @@
 
 # Top.Favorite:
 - [If Not Corruption, Why Corruption Shaped?](https://youtu.be/IhWkBmFWU64)
+- [COLLAPSE of Personal Computing | Investigation Into the Destruction of Ownership](https://youtu.be/zyQwAhppWj8)
 
 # Relation:
 ## People.[@Jayztwocents](https://www.youtube.com/@Jayztwocents)
